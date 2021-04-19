@@ -6,7 +6,10 @@
 
 ### 我在投资中犯的最大的错误。
 
-### 树立正确的观念
+### Investment_T_01_Make_Right_Conception 树立正确的观念
+
+#### Investment_T_02_The_Misconception 错误观念
+
 
 #### 如何避免陷阱
 
